@@ -21,19 +21,19 @@ https://www.cos.com/en/index.html
 
 
 https://lisasaysgah.com/
-![2024-04-17_13-36](https://github.com/Blourvim/website-examples/assets/71990861/bfa9bfc0-2535-4f9a-aff6-cdab65795729)
+![2024-04-17_13-36](https://github.com/Blourvim/website-examples/assets/71990861/bfa9bfc0-2535-4f9a-aff6-cdab65795729
 
-
-
-![[Pasted image 20240417133710.png]]
 
 https://autumnadeigbo.com/cart
+
+
+https://marnon.jp/
+![image](https://github.com/Blourvim/website-examples/assets/71990861/72c84ddb-e61d-4f90-98e8-dd0eb136102c)
 
 
 Fotoğraf ağırlıklı
 https://www.sezane.com/us/collection/bags-wallets
 ![2024-04-17_13-49](https://github.com/Blourvim/website-examples/assets/71990861/742b93e6-3ae9-40c4-a9ae-0009312cc926)
-
 
 
 renkler 
